@@ -1,0 +1,1 @@
+# kopia_zapasowa_gospodarka_zoptymalizowana
